@@ -1,2 +1,2 @@
 # Gitam-university-
-Gitam university  hyderabad 
+Gitam university  hyderabad . its a good campus 
